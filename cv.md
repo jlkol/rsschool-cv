@@ -6,4 +6,4 @@ My goal is to learn everything that is necessary in order to be a good programme
 
 VK: https://vk.com/jlkol
 Telegram: JlKol
-+375 (25) 950-32-60
+Viber: +375 (25) 950-32-60
